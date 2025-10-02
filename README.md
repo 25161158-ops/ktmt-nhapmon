@@ -1,2 +1,10 @@
 # ktmt-nhapmon
-nhom10
+
+nhom10 
+
+Name : Vu Ngoc Minh 
+
+MSSV : 25161158
+
+Introduce : la BALLER  
+
